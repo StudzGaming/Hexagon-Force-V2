@@ -1,1 +1,1 @@
-All my fonts are free too use.
+All my fonts are free to use.
